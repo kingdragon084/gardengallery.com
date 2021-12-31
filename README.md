@@ -1,1 +1,0 @@
-# gardengallery.com
